@@ -1,1 +1,1 @@
-Hi, I'm Aleksandra 👩
+Hi, I'm Aleksandra.
